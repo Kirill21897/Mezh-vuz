@@ -1,1 +1,1 @@
-# ITMO_HACK_summer_2025
+# Mez-Vuz
